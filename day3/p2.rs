@@ -1,300 +1,53 @@
-VdzVHmNpdVmBBCpmQLTNfTtMhMJnhFhTTf
-FgqsZbqDDFqRrhhJnsnLMTfhJG
-bRRRPrRRwSwbDqgjvDZbRbQzpzmQVWCzzBdvQBFCzlWV
-GcDdRdvhRssRhGDdShCRtqWjlQzqWgqzNfNjfQWWjt
-mwwnnPFwmVrPmJmzfNzqCjQCbgVlgC
-nPnHHLrHwmJTrCTJpThBscBSdSLGZvZBvRhZ
-RVQQcVlcSRclfZCCCnMJJTSTnC
-NdHwjdwjbBBZrrZrbJDZJJ
-wmhjGGBGwwmjtjtdPlfRcpVQlhRppVJF
-pplbNBPPrppllrFNbpvppSTcwqcWFhTTShhJDTchqd
-RGzRfLjjmZmfmwLftTWhStStJWTdWmDm
-nfsMjQssnpPvNnrPrw
-SjjBgllzlQjBZvlBBgcFbgJHsMhJqbMHPggJbM
-hRLRVDdRRWnJqnnHTqMCnH
-GRfLddRRpVhNVrWSjwQQzSzcGSBQSc
-qMwNqqBdQdnTVBBVVhMVnVFzTHPggTPjGRDzvPTjjmvPDj
-sbSrWJpStrtPtRPttzmmDD
-pfbJJcbsrcLpWLllsnFmcqcwQncnQQqVNQ
-RBTWCMwCwdZThPZcZZ
-pVmVpHLFFFHHVgVmvNmHSQNvddlPPzZJMPcdhclhjczLdZMP
-vnnNnFStGMRDwWnn
-fWDdJTpDJzdBBBdmDSbSRHRwPqbPbHgSbz
-slQtQvNsMVvrrgPRgRglnhwWPH
-sGMMQFrsjvNMfWmdpfFDFZBf
-vnMRMWCMJwWWwwWPjmSdVmLdzvVbLrhL
-HsNfDHQlZpNqfQzbLbrqhjLmVdjd
-dfDZQsNpstHHHptZDDtZWgngtgBMPMMRwCPtBBGW
-HwQwwbwFNWHwHBVFQFLQzRznZnSzcjjjpPbcPpSP
-vTfTJsCmsftJZmTSSdPvzdjRSvPdjd
-TrGtTJfmGDfDhrhJJJsqrZhDBFLHHLLQWFwwlWBVBBVwgLFD
-FFTJRLccQgmTbSsbGm
-PBPPqCvCwqwhQQVhQngmVmSgglmGnHbnmb
-zqthvtQPBfCCzPwQPtwQzPwNLfNRFNLdLRLFRFFNLFdFdW
-nszjQnsPwjznzCCrhJqvjqhmBv
-tFWdHGWFGtctlNNpZBBhmqTrrbWqvTBT
-dlFtcpHDVVVHFdNGHGpGfQgsPDzSMsQwwPwgLLBQ
-TzQqTJGvnnSzqrWTnvfbbcflQcVltfcCMPVM
-jFjNZFFJLpFwmBwblcpptcVtfbbVlR
-jmmJdBBLNdGDWDDrdzqn
-pzddqQmGgbqgGpbJmmdnLZDCRZnZvFlLRZLSlLRT
-rVwchcBBMwVBHhHTZCTSGSCRTZlTDr
-HtccPfjfBhMtVBGHWpNqJdJdpjNJppWz
-WThTWWhtPbZRvvWbbvRTSRMjVRLLgFssgLpVsfSF
-JdwrlJcCwfzdqwwjsjzpLMgVsMFgML
-lQrwHNGJHClvTmfhBmPQmt
-lbRLhcLRpLJzgdGddF
-qvhwqDDCVtBDVhfMVGFnzGGzTBnGzGGgFg
-VjCwCWCMtjVDtChvQhtffcSmHpNWrrcHZHHZpplWbp
-DJVDVdvpmZdPgrCbgbgCJC
-lzczcWwwznGhBgPSvTlCrNgqNC
-wGzzQhzGGsBBGRBcQwGwnwjmmRHpRfmmMpppMjjHDvLL
-HJjJQWjFmmWtFmJTMchghhDwNMhVMWML
-SznPSRfRSSPdrrPSShbDVhbLPwcwGGwVNh
-ddRfzdRrCrRsZDSnFjspvFvqFqFqTvJt
-lflfjQfjvljfbfMLTTDCmHNLNVbL
-HSJnRrrJZJssnGRrnsrcqqRnDCLBMhVCTLVLhVNVJBBBhhBm
-SsrGGqqnSsWSnnqWHSrPfzftvFdvWlwfQgQwWvzz
-nQlsGnFGwwqNJWmJJjpplt
-HMTLPTRdvsTCCThDCZdLdLDNNpJBWJbjJMpBmbtNptBWmm
-DLCzPzTzZDdLdGSGfSGrsnQGzr
-LNPPLHNPHQNQSBFDWDPgggFv
-hszfWCWJhrBMsSSBgvFD
-GGZjfmJTjmZfrJrZrZJRGwNQnlLNHWjLVjlwdVNHpV
-BdNVdTcGVclmTwrTnwPwrHCr
-zttBWzfLsCggHPwDrf
-szsWSMbWzzbqBbzJjtjsvMzzvdmdVpGllpcRNZZhmRpZcGGc
-CjdbMmmmZFnzzgHlttGBVqtBGtsldG
-LvPPWNcFSSRslWhBsllT
-ppccvLPpcSNwLLwrDNNpLvwJHCMDmbCJbFzgmZZmFgbgnM
-TTNRwZqhcTTjsNTTsmrJlvrmmmqqHSrlJH
-fLQCCdtcfCDDVbVVQdFbQbdJHMHrJHrHnMllHdMHPrMdln
-WfQLQWWDbwRTWcRssN
-HQGQWHPDHNjMNQGNWNTWCvZllzqFZqzvvzhCtvFj
-DfgwdgfcFpchztvt
-sRggdwwVdgmnSTnnDBPBNWLn
-WbCZCfTVTTJjSwGdWNDGGw
-MMRqggMsqhlmlhrssHgRnRmRvdzdczvdNGNLzScGDrNzrLNc
-lRqsnRhmqqQnQpgQMlgDqRfBTJVFbJZQtBCbZQJVZFFb
-JnhQcCnmLDsmgmgr
-bbMZppRFGGRPfBMMRGMZssTTrLlLfsLlVLdsLsdn
-GZGSpPGMZtGGPFFRGBCwhvwjjcnJctvQcvHq
-vvrPrHZMGJNRMnqn
-BVChWWcDVWsBwCWwGrJNhRLJJnJtLqnq
-cjDfcfpWWsfWccBsHgPgrPTdpZbbgggv
-GshtVtVtjSCVtVvVGtlVvFZLMvLRZmHmZwbLwZdLdZmR
-JWzNDQzjcgJgQBJgzgMwLLHZZcdPwRLwRdHZ
-QWTppBWfDrrNBTTfffhFCpVSjnhCGsFtsqSl
-nmbCnzHHNzCjCJHJNSCWHLBLrvBrrSGRBDhrDRLrGL
-TVtPllwcgdmTRhLQTQhT
-fdFtccFcpPmggfdfNzHzCMsbCnWnJs
-fMgddvjgRRvjvjVJVdTlZGGtGnrlnqTccNjl
-HHSFSWSmmpbBpZlGncrNGbNtrn
-WDWBDDBDBDCwPBWBDWNQDgzvVvLRvsVLRwvwdJVLwL
-ZSmmvcpsmcJmJvqgBZgZqqtCtZjl
-WhDwhFSDgtBFjnFg
-rTrSTLWTTHNMNwNrMVddwNNhsmJGQcRsRcJGsJzQJsrzPsPm
-GBtLmPsCQqsGqgghZHDzzgLbFz
-zjjVTzTlRjRJfznrvrfpnNhFSghbbNFgHrbHZbDHbH
-vpfcTJVpcVlfcQPMPCGzCBsd
-HMhZNffcPZfNMrzjjFdGcJDjvJ
-VSBVVLlSQQmTVSWpSQzDrHzTTvDvFjFdGGzT
-mQSplVHWbHLSgWQnShNwsZMZPfbsNCRNCt
-MMqvDzLwZzlMqQfdGWPfgPffPglH
-ShTcJshsrRdnrdfrrfHp
-VVRtFhsCJVJVvwQqDdbDQd
-dmnNMlFNvmvljnbpMWNDFQvfQJJGvfPCfHGgQQgcJg
-bRVzLBSSTRBRBBrwTrVtRwCfcGHcsJgJgzgGsggHCzcC
-ZbtVTTrrqrSSVwhqqwBRwFWMDFNdjdZpWjdDDppjMW
-MTzqtbLtwFzJgbHgfbdWWH
-VMNBjNVjvNfhhhhfNPhP
-jmGMvlDZZnVMtzlwzqqCpwFt
-PpzGspGmpPsFLrTnTLzzBg
-QCWvfjfWjRPFZgrvqrBvTg
-wwNRCNQQVNRWjNWfQbHCCClHGDGJdGhpdhtPGhltDlJD
-dhbpGzhllzGlPvnzNcvtNVnc
-gcFMsTJDMMwrZqfjjqvvfnPtqJ
-sWRWTRFwrTgLDDFWgMsTlpSlpbSCdWWdcbmpChGd
-QccdFFFcFbcQPQPHMgpPMp
-NJlNSSMLDfJfmlSqHZRNpRqNBRPRPq
-LlMmJfvDVVTJSmVMscsCFtvwcjWjrjCj
-NVVMGWFSMRVGWSthwhTJWzcJCcJsTs
-jqRLqlfRZcmjcCzT
-rlRRrdrflpdvPbHpflfPlfDBgBMQpGVQMgpVDGMggBDV
-VwRhccRsnQStRhtGQVQVsmjgDgqJdggDjqLDgJlLzmLl
-BWFZpWHBNCBCNBzBNvWBpzHZqqlMqgNdlllDdqDgJDLlfDdd
-pFbTrrrBzbzTtSwStQnnsrVn
-DRfFbFqzbddfPFtsJnJRsnClJRsn
-cgjgQgWvSLVQgmWWgWVjVSSSBTltThLnqJssnTCZsTThntZT
-qjwpSrmWgcSrGMfdFDFdwHFd
-RWjDDWDjDNjjgDtSRRgjcjzFpnzwdFbFNdbFbpnldwFF
-vQfPfTQJbZdThTzL
-PrBQJQsfQqrrbfmPqMBfJbggjRVgWjttsHRSgRctDjSs
-NgqNWqqWWdnJdqpBNFtCmJGCDHttDGDsHsHm
-BjvzhRLTrTBQhTMQRjRRcjPGtmDCZZDZSCmmMSSZmVmSSt
-vQzRvRzQcPcvfQzRnddppFgnFfWwBFlb
-nnPvfvgrtPDHgvvGTRRRPZQGpGCLLV
-FlBsBdbllFdfWpbGMCVMZLVbZQ
-lhchNcqFsJBlBszztvwHjvzgrzmzffgH
-zZhdjTpJJpjmmpPZhvqnnZHqZcggvgMbgv
-tFpFQFSFtBGlFNwFfNMnHfbHcnvcvcfvcqrM
-GBFlNLSNVGVSSGtQSLLBBlNtphDdzpmmPmTPhRmdzdVCCDdR
-rpRCCDLpmnCdJCjn
-vMhSFvgsMGLmnmWMmm
-wVqFFvwvPPHhFhhgHPwHshpqrDDzqlfRbpftRLblrllr
-CRNDzdJCVDWzVgDjdjzRJzWRMTbHsMNZNbZMMbsfhTtMTLMB
-wSlwQcSpqPpcqcqFSqpwslsTfZtLhtlthtBHtTMZ
-SPGFGFFmpcPGDrWDmjDJVffR
-dsmdtJthJphWqHRPnRRsvvnnfR
-cDBMDDDlBZglDZTMDfzVvNRrvNPVHzRRTV
-PGMCCDClBDDbbFqmmhqQdpWGmmWp
-BJjcGhcvCnBdGHsmHSzZDzSDMHmRMQ
-qLWPLVrTwWlwwwrfrFfGDNmDQRMbQMzzmmbQLNMM
-rVWrFlGqlqwVwVGgWGphnvgBBsnvsjdBnCBnBg
-sNNsfBsmcGmgNTcHHSpnTWHnpV
-QlrhlrlMglhDQrdFblvFtMdnDWwSHDWWwnTSjLwVDSwwwT
-QtdMvltZhbFlPPZbQtQthZQdqCsJJGzBqqCBmCNCqgRCBsfP
-SZnQnnHRWRQRVjHnqlJTQPfdlqfJftqG
-pDzmbDBFbBLvvzttfdlTTl
-gsDLLpcmsSZVwlnRsV
-LHsWjwjWqCLsqCHcLsjdLqcdbpMGZPPtBhthbZBpBhMllwPG
-VFnVbbvJSfbgphSpGlhRBBSP
-JrrTgmFgzvNbrmNnmnvzgTLjCQWDLDCsTjssjqcHLc
-QmwwqTqsrdqNNqgtvnVDVcGNNtvv
-WBFBpzzjSJBJzJbfntgPzVzcvPnzDf
-HcpbHZJBFpjpcSZrZsdRQZrCwrwd
-JqmLmbtTWThBTWvWGVSrrVDsSGSG
-wwzRzNjNNbsPVPds
-jfgQRZwpQclQfffHgpRpwpfTcqtLLqCbbFFFLmbmTTBnFB
-fGpcccNNqcctqGMprvMPmbbzFSflSRzPBBlBbS
-JCjnjTZTTGPSGmTFPb
-ZWHhJjHLDVDgHLLDGjnhctsstwqctNwWqNwwQrtv
-sDwQhcwhBDDwrhGsQnRBQHHMHHMNJMZFCFRbCRftMM
-zjjlmjqfdTqlWdzTqmLzlzVjNCHJNHNFMFtbJNZgVNMMCCtN
-vPTfLmPTLWBsPDnSscnS
-ngznwDPPTzhPPDCTQnTTDQBQqHNNrHFVppbbjRFFqFhHqRqr
-tZJtcGsGtLLcctRqVBbbqrspbHNq
-BmZSvGBMdWPzMPgnnz
-MpNWPVNWWZWVVNZHVcvJjgBjJMStMJSjjg
-rzdCzrCTTLRCslvJDSjjdScgDm
-RLhCQzqTCssThRQzRzwGQrrCFffbfWppNpWNWVcHqZbHpVPp
-zQzCVWdSSjCdjpchWcGftflGZcgG
-RwnJTJwmvFHTBFmtBccZZfBGMstllM
-wwvvHRwqDnHFrmqnrSbQVVQfSbqQjbqjbQ
-ttDftStSlftPgSHmJbFwnMnFwzbrLHMMzz
-GqTBqhBqBvppBvMMTznrCbCnLwfr
-RBjjpZZvvZqGcNhjjpNmDPfDcsgfDfgScsQQQg
-rsSFccvBHppHPsvQrSHSprFjnbLGdbzLfbGLLtLjjzLzvl
-JWWJhmwwTDTGtnzlhdbtLG
-CWNqWRNCwnCJVppQFFFFNrgHBB
-MSRVnMjnVRVnPlcsrtMtschgDl
-NWHBwJBwBBQCHHqwWQGBNgdrFFtsthcqdltdDsqttq
-CCTTGCNCCBfNJNNWbGGnvVzDSRfDRSZvLPSzRn
-MpRfjRjWpZzzzRzZSpjzZjTCQcGdHLWNGqdBdcBWWBLccn
-lrbrsPQDPQglDtwggcLCqnCdNNdHBLsqNd
-blwbJggvgbwlvQbvtgwmvVwRfTzfMMjFVfSFjZjMTSTSzj
-ttSGjHWVrwWrWWvhzvhmhDfR
-qMBdNNsccQgfDRzRmqlhRl
-gQJdfJPdQBsMggMjPrTCLjrGrCrtVT
-tGFdlwDwGFdNtStghWWdQFSnTVfCfZhrfVTVCVprnRRhVn
-cLsBPQJsQPmbmPHTnRRnHprCVfns
-MjmvPqqQjPbQzjLwwDWDSlzSlGSgwl
-NSCpFgfbscbZZZwrtgPZJT
-zGCQlVGmmQGVqqJwGtHZGrPHHRTH
-qQvVmvzmqCdhhjzCQLjljLQMnMDSFWcSfnMfpbfnNcFFbFDN
-zFgqjQBmWNlWlfHrHdLc
-wnbCpSSZZTJSJSnmdrtHfGtftlcpltpH
-ZSwhVPPJgNVmNFzs
-WNVJthVHRRfLqpqN
-gdCGcCgJBCrgScRLzbjQQLfRRR
-SCFdGSFvlhTJsnvW
-FFZwFZZwRmFFhHtNLNLGRtsqjLMt
-gbDnnrMbMCffMPbPLNjGNlcppNtspp
-rgbzrzDrgVgnrBzFWMWmWBwHWHShSB
-zjRVjDqzRjvSBnBGGsfsrFsV
-fLccLLZpJMctwJWWWJWpJGCwFwsgnngFBPsCnnTBPT
-LbJlZNWMtpMlHRNHzdfSDfdj
-VGbbnJGSTsVTssTTnVVWMtfBBmvftRHfHBMJJfZp
-ghqtrzgPrjdzQCjmZMHfRHZHBmQmmB
-gltFtDqFVlTVWlTl
-HqNqZDTvNvVTLPSTvzfrfHfdndffwnbdnwrH
-MpSJlFcMJmcpFlmClcMcRnWbWtthrnfwnCGrrWfrwC
-RjcJJmSFMRQpMRFjMNVvTZjNPPvLTBPBBB
-MzClDtlzJzFzNGGm
-bjcLRHlTBsFJGmRm
-HcPSSfTSpLZLbSwtrtvMnlDCDPCl
-gWWgQJCsVhgRLCWsdjpmcBHvfvrrnvCvBB
-TqDtztqtStlbNTPtllqZpvmcFHjNjvjNvHvmrrmj
-ztPPGZqTPSbJgchGgwRQgQ
-wVrdtTqtCCvbNgbNTTDN
-mhGzWhGzMGWGrRmbFLBHZRNHNvZvgB
-hhGhShpnsSrqVCVSSj
-HnlbmGnlHZHnlBcjgwfDVfwLsGLGLDgR
-WhWMWTvQPWPLDMFRCDMsVD
-QdzJQPSPZqJnJRnZ
-TTjTjFBcRBGjwsDTBLmrCftfRVrrCftCVNRP
-WnqbJWnnQJhSqVfVPfDnggfrVN
-hSlDMllvhbQqllZlSWQdSQTBjsFHBjTwGdHBTBszLzcc
-rNWqWDLZWcqFqLLLgQQJnndnQdNzzJVMzd
-cPtsPvChtRsGswHPGbwcPcdVnpzvnmBmVvJBJdJVJdzn
-PfRfRGtsHsSRftbbbbHhwCCsjZgSTgSZWDTcgDZjLqgqFWLq
-BNzPnPJNNMwHJRhBGRWRdjFQddFlFjWd
-npbZrgnLSCSrWFjjdlZGlcDF
-gqtmmngSbmgHJqfqzNBHBJ
-stgzttBPRRRdpSVVpdpS
-WJFcLQmJZHcCFLJmcZLMfbpGSWMNpGftSSpMrb
-mcvvQvHmtLCJmHZQHZHCDHJJnjqPjjPzwvwhnwPqTjPBzPnB
-DDmbbPqgFSbSQPtPQJttrltJ
-CRfcnZWmRRhJNVtsVnQlsp
-fcBvWvWzcZWCzTTCTTvccFMBHGDdSwGFFbqwFSGSmF
-tCRBPCPRjzsJszBmtjmCvSpHcppJpvZdHHHcHZJG
-qbrlLnWlQDQDNvmHHHHcrZZvdm
-nmnWnnWmgQsCFzFCRVCg
-sHMHCDZfcwMcRcLMcZDCRCHMPdJqgjvVdvqgdgfdJbQgvWQb
-FFhTzmzGrnmtjTBjBBprrmFtqGgQqvVdPbbgqQQWJvvWJQqV
-TrNjrnFSlwNZNlNL
-JQGdsdzSzsdFQFSdssnndNlZjNPTJZNljVjTPhVPhT
-GgGLfRmHGLhNVjjNTLhV
-HvGvwpbHHRwpBrvBgSSzSFndtzndCrsFMd
-DptFshMrhDhDwmPPhwSNhmmS
-RLdcdRvBjnvRVcvlcLbCcbCwwpGBwSmfZqqPPPPwzmfqZq
-VlRLvVjCJLnlpvvRdllLcJJWDHgMMHDDHtWFFDDQgH
-SsSdrndpDlCdLftd
-VGPVJgmQrVGHHZfwLlfCTmfwlDlT
-PcJHcGgcWWbJpjRrphRbFpRn
-PdPSMHMLzPPSShBdffMMzMRHQQrpppcqTCQQpCccTGTRCnCQ
-vsbWmFbmJmZFFsmsbfpGVrGnWrrpVpnnVcTV
-JZslstfZNNSSPdlSMwlM
-bLLzRzZLbRqJJrDGGVZdwssDvGQw
-FCtNJlTFtmPfldSvDvQFVVsjSv
-PmCPHBhhPpWLWgzgHJ
-qwmwFHCgPgPPqPwMCrHHFBVVRBttVRRffVfmsjVNNB
-WSvcSnvbSWbhcbjlQbvlSQhlfBGcspVVsVGfVscpzpNcpBtN
-hJSLhlvlTjPFHMLCCq
-bggDpTggncGVVWbQcG
-sRvSwwwFBSpFzvRvMFZqmPmMVqmcmPPVqhqqWq
-SRBBrFZZwrddBFRjlptnLgDnTggdtd
-PPfMcZMflbMQcMllPVfTVMwjWWmZvpWWpWhhjjpdWWww
-sDQNnzsnQgDNsFzFqtGjGmWWSpWrGhdpvphdSW
-nNQNqLBHLqzDnHgnVJfPJPCRBbfCcJlT
-fppppWsjcSDPjjDpGhgwbfTgHTCbHJwbHbTR
-rLBdQnvMNMmFPbLqHqTqgLHCgL
-nrFznvMNMQdttrBcScsDstWcPGtWSc
-lclnRSDnGZtvSwnZDZzhLffqdsCNwTBCBBdNsd
-mPjmjmrFFpmQjMJQjlNdlhCsCLsTlNLs
-ggmrHHVVQVPJpWrgpWScRvzZzGGRnZvlgzZn
-GjGJGQJGcMTVfFDQzNVQzP
-mHqdbmmdnJqVzVhRVNzPbR
-wStmHJsJsLZLjTvM
-QssMbVGdMQjZPjwVwHVZPZClllvgSgvlTgwwSSCgSCtC
-WmmFBmJrcFRBFrJJBFchzWCStgCTgvhvTlfsNqfTlvTv
-sFzzssDLzrBPjDVVddHMQD
-fztDZSGrNrlnbnPTgFFpln
-jvvQMMcLcjJmQwHdJvjQJnnbTbRFRphnnpsWgmFRPR
-vTLHHCQLHBBjJCSZrVCZtSfSfrft
-gHfHffHLjwHrRjLrLRZVMnTdTBsNTBwTVBsBnN
-DWPhqhhDhvSGvWPzSzMBQBQVMMBBmvssvQvQ
-CDGbqCDbChSbWGrHcHRgbcVcfrLJ
-frlTLmtllbbbdpJS
-qFjhzjThjHTFGHTjqhhjMzBhVpVpdbBnSJQRpBnVVdbRRQJd
-vjWPWjWPPPWgwmfCrNvTvZ
+use std::collections::HashMap;
+use std::fs;
+use std::io::{self, BufRead};
+
+fn find_comm(a: &str, b: &str) -> Vec<char> {
+    let mut map = HashMap::new();
+    let mut res: Vec<char> = Vec::new();
+    for i in a.chars() {
+        map.insert(i, 1);
+    }
+    for i in b.chars() {
+        if map.contains_key(&i) {
+            res.push(i);
+        }
+    }
+    res
+}
+
+fn find_comm_tree(a: &str, b: &str, c: &str) -> i32 {
+    let mut num = 0;
+    let r1 = find_comm(a, b);
+    for i in r1 {
+        if c.contains(i) {
+            num = match i {
+                'a'..='z' => i as i32 - 0x61 + 1,
+                'A'..='Z' => i as i32 - 0x41 + 1 + 26,
+                _ => 0,
+            };
+        }
+    }
+    num
+}
+
+fn main() {
+    let file = fs::File::open("./input").unwrap();
+    let mut lines = io::BufReader::new(file).lines().map(|l| l.unwrap());
+    let mut sum = 0;
+
+    loop {
+        let l1 = &lines.next();
+        let l2 = &lines.next();
+        let l3 = &lines.next();
+        if l1.is_none() || l2.is_none() || l3.is_none() {
+            break;
+        }
+        sum += find_comm_tree(
+            l1.as_ref().unwrap(),
+            l2.as_ref().unwrap(),
+            l3.as_ref().unwrap(),
+        );
+    }
+    println!("sum {}", sum);
+}
