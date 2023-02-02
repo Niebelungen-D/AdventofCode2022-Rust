@@ -90,7 +90,7 @@ fn main() {
             },
             "dir" => {
                 // dir
-                let new = Rc::new(RefCell::new(Box::new(Dir::new(&line[4..], up.clone()))));
+                let new = Rc::new(RefCell::new(Box::new(Dir::new(data[1], up.clone()))));
                 cur.borrow_mut().dirs.push(new.clone());
             }
             _ => {
